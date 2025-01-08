@@ -6,7 +6,7 @@
 
 - 2 Tbsp homemade Hazelnut Syrup
 - 8 oz Mocha Flavored Coffee
-- 4 oz whole milk
+- 4 oz almond milk
 - 1/4 cup whipped cream
 - 1 Tbsp chocolate syrup + 1 tsp for garnish
 
